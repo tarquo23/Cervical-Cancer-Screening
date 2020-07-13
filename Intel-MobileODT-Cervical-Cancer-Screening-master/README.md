@@ -1,1 +1,0 @@
-# Inter-MobileODT-Cervical-Cancer-Screening
